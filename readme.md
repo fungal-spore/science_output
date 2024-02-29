@@ -1,1 +1,1 @@
-Science outpout
+Science output
